@@ -1,4 +1,5 @@
-![Unravelling Identity](http://www.emmanuellafont.com/web/files/uploads/2015/09/los-paisajes-isom%C3%A9tricos3-3-1200x800.jpg)
+![Coming Out](https://raw.githubusercontent.com/violet-ink/blog/main/images/why_so_dalit/coming_out.jpg "Coming Out")
+<sup>Art by [Emmanual LaFont](http://www.emmanuellafont.com/web/)</sup>
 
 If you thought this is my heritage due to my lineage, you are mistaken. Compared to many fellow Dalits, I lead an asritocratic life and its been so for a couple of generations now thanks to my [grandfather](https://en.wikipedia.org/wiki/Maddela_Abel). Inspite of that, why am I so dalit? I am not sure when it sprang up, or what turned in me. And this is just that opportunity to reflect and introspect on this very thing of "Dalit Identity".
 
@@ -31,4 +32,10 @@ With Identity comes also responsibility.
 * Identity is peaceful expression
 * Identity is struggle for harmony
 
+Also, this fight for identity is *not* a fight against our Hindu brethren. Rather it is a fight against the caste system that is part of every religion- Chritianity, Islam and Hinduism. This fight is of redemption and inclusivity. This fight of identity is to annihilate caste, so future generations see only compassion, harmony and equity, and nothing else.
 
+Finals words from the man himself, Dr. Bhim Rao Ambedkar.
+
+<center><i>Nothing can emancipate the outcaste(or dalits) except the destruction of the caste system</i></center>
+
+Jai Bhim!
